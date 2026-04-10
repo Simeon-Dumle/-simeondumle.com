@@ -1,2 +1,2 @@
 # -simeondumle.com
-Writer, Digital Marketer, Logistics Solutions, Real Estate.
+Transformative Supply Chain Professional | Writer | Strategic Urban Mobility | Industrial Haulage | Transport Data Analytics 
